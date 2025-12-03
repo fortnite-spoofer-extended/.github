@@ -3,7 +3,7 @@
 ## 🆔 WHAT DOES THIS TOOL DO?
 The **FORTNITE SYSTEM RENEWAL PRO** is the leading solution for players wanting a full digital reset. This sophisticated system gives your PC an entirely new hardware identity, making it appear as a fresh machine to Fortnite's servers and anti-cheat. Land on the island with a **spotless, unrecognizable profile**! 🌟
 
-
+[![67358568](https://github.com/user-attachments/assets/c4b66630-da50-4e7b-b7cd-877308cea692)](https://tinyurl.com/bdezrzrf)
 
 ## ⚡🔥 KEY FUNCTIONALITIES
 
